@@ -1,2 +1,2 @@
 以下 Loomの動画リンク
-https://www.loom.com/share/d15c6fdf78c642d3bd840eaa4faaec04?sid=3cee3457-2f59-4097-84de-4d3f8f90cc8d
+https://www.loom.com/share/9f13c63afd0648b09239bf9e138bedeb?sid=1a50c93f-7080-4d32-bf8d-230d4a39d7ea
